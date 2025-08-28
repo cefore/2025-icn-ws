@@ -1,1 +1,1 @@
-# Cefore-Emu Work at 2025 ICN研 Workshop
+# Cefore-Emu work (at 2025 ICN研 Workshop)
